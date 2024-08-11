@@ -1,7 +1,3 @@
-Certainly! Here's the revised privacy policy tailored to your hosting situation:
-
----
-
 **Privacy Policy for Cly**
 
 **Last Updated:** [11/08/2024]
